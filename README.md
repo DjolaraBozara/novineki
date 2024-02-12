@@ -1,1 +1,1 @@
-# novineki
+# novineki ajd
